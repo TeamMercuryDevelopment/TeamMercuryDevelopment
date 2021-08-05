@@ -1,11 +1,6 @@
 ![mercury](https://user-images.githubusercontent.com/80074708/128419774-88b860f4-5cbe-42d0-b6c2-99a03ea791d2.PNG)
 
-# 
-
-
-
-
-# Hi , we are Team Mercury! 👋
+# Hi, we are Team Mercury! 👋
 
 🌎 The Team Mercury acts in a clear and objective way, seeking to improve activities and solve your company's problems.
 
